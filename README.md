@@ -86,5 +86,17 @@ Mediano Plazo (3-5 años): Diversificar la oferta con nuevas soluciones modulare
 
 Largo Plazo (6-10 años): Posicionar a VERANS TECH como un referente en software de gestión de activos a nivel nacional.
 
-<img width="843" height="1384" alt="image" src="https://github.com/user-attachments/assets/c24a6c6b-adc7-4a07-83bf-1bb96e87eb27" />
+VISTA PREVIA DEL PRODUCTO
+
+<img width="831" height="409" alt="image" src="https://github.com/user-attachments/assets/07ac1f43-f273-4f96-b6ca-d6312630037a" />
+
+<img width="832" height="390" alt="image" src="https://github.com/user-attachments/assets/2fd07aa0-7e2f-4017-9f23-5f9219c106b6" />
+
+<img width="832" height="394" alt="image" src="https://github.com/user-attachments/assets/81fe8f9a-1ce9-458b-9b3d-b2d269aeec5c" />
+
+<img width="843" height="398" alt="image" src="https://github.com/user-attachments/assets/5d8e423d-8101-4c48-b378-733055b70935" />
+
+<img width="843" height="397" alt="image" src="https://github.com/user-attachments/assets/154521e3-eeef-4bbf-b5ef-5840abdecad5" />
+
+<img width="843" height="471" alt="image" src="https://github.com/user-attachments/assets/044fbd0b-ea36-44aa-9f64-23fc81f8d455" />
 
